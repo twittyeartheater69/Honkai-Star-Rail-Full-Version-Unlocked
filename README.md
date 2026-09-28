@@ -1,0 +1,1 @@
+# Honkai-Star-Rail-Full-Version-Unlocked
